@@ -1,4 +1,4 @@
-# No My Way
+# On My Way
 by Alan Walker ,  Sabrina Carpenter  and  Farruko
 
 lyrics
