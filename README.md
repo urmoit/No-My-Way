@@ -1,7 +1,7 @@
-# No-My-Way
+# No My Way
 by Alan Walker ,  Sabrina Carpenter  and  Farruko
 
-words
+lyrics
 
 I'm sorry but
 Don't wanna talk, I need a moment before I go
